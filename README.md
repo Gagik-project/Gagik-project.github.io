@@ -1,2 +1,2 @@
-# Gagik-project.github.io
+# Գագիկ Դանգյանց
 Իմ Առաջին  Սաիթը
